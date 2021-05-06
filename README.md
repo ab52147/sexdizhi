@@ -1,10 +1,10 @@
 ### 防封地址sexdizhi.com
 ### :sunglasses::sunglasses:（sexdizhi.com）:sunglasses::sunglasses:
-### 【地址一】  https://seav24.xyz/
-### 【地址二】  https://seav21.buzz/
-### 【地址三】  https://kanp23.xyz/
-### 【地址四】  https://kanp21.xyz/
-### 【地址五】  https://seav11.xyz/
+### 【看片地址一】  https://seav24.xyz/
+### 【看片地址二】  https://seav21.buzz/
+### 【看片地址三】  https://kanp23.xyz/
+### 【看片地址四】  https://kanp21.xyz/
+### 【看片地址五】  https://seav11.xyz/
 ### 【邮箱联系方式】  hehei154245@gmail.com
 ### :heart: :point_right:【防封地址】  https://www.sexdizhi.com
 ### QQ或者微信点不开以上链接请用手机浏览器打开！
