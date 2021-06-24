@@ -1,7 +1,7 @@
 ### 防封地址sexdizhi.com
 ### :sunglasses::sunglasses:（sexdizhi.com）:sunglasses::sunglasses:
-### 【看片地址一】  https://seav26.icu/
-### 【看片地址二】  https://seav25.icu/
+### 【看片地址一】  https://seav28.buzz/
+### 【看片地址二】  https://seav27.icu/
 ### 【看片地址三】  https://kanp23.xyz/
 ### 【看片地址四】  https://kanp23.buzz/
 ### 【看片地址五】  https://seav101.xyz/
