@@ -1,7 +1,7 @@
 ### 防封地址qzdizhi.com
 ### :sunglasses::sunglasses:（qzdizhi.com）:sunglasses::sunglasses:
 ### 【看片地址一】 https://qq.com.qz26.xyz/
-### 【看片地址二】 https://qq.com.qz26.buzz/
+### 【看片地址二】 https://qq.com.qz56.buzz/
 ### 【看片地址三】 https://qq.com.kanp25.buzz/
 ### 【看片地址四】 https://qq.com.kanp25.icu/
 ### 【看片地址五】 https://qq.com.seav102.buzz/
