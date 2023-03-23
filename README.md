@@ -3,8 +3,8 @@
 ### 【看片地址一】 https://qzxinjia1.com
 ### 【看片地址二】 https://qzxinjia4.com
 ### 【看片地址三】 https://qzxinjia5.com
-### 【看片地址四】 https://qq.com.qzhw6.top
-### 【看片地址五】 https://qq.com.qzhw7.top
+### 【看片地址四】 https://qq.com.qzhw13.top
+### 【看片地址五】 https://qq.com.qzhw14.top
 ### 【邮箱联系方式】  hehei154245@gmail.com
 ### :heart: :point_right:【防封地址】  https://laiakan.com
 ### QQ或者微信点不开以上链接请用手机浏览器打开！
